@@ -1,0 +1,1 @@
+# elementary-school-kanji1
